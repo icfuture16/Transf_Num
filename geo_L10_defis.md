@@ -16,4 +16,4 @@ La Côte d'Ivoire est membre de :
 
 ## 4. Perspectives d'avenir
 Le Plan National de Développement (PND) vise à transformer l'économie ivoirienne pour atteindre l'émergence en s'appuyant sur la paix et la bonne gouvernance.
- village.
+ village..... 
